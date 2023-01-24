@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-[linkedin.com/in/max-coetzee](www.linkedin.com/in/max-coetzee)
+[linkedin.com/in/max-coetzee](https://www.linkedin.com/in/max-coetzee)
